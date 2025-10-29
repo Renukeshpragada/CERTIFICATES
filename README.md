@@ -2,6 +2,7 @@
 
 ### . TCS CODE-VITA SEASON  12 PARTICIPATION
 
+<img width="760" height="537" alt="image" src="https://github.com/user-attachments/assets/dddac324-0f3d-4824-8ad1-a0d0ce8b8728" />
 
 
 ### . FLIP-KART GRID PARTICIPATION
